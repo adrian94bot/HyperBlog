@@ -4,3 +4,8 @@
 >Un espacio para aprender. 
 
 Creado por Adrian escarra 
+Creado por Adrian escarra 
+
+Incluye ejemplos
+
+Disponible para todas las edades
